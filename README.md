@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Aurabang.
+- 👀 I’m interested in game devloping, coding and games.
+- 🌱 I’m currently learning how to game develop.
+- 📫 My Discord, oculus#1426
